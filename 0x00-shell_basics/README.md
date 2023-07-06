@@ -1,1 +1,1 @@
-Second readme
+READ THE F**KING MANUAL THE SHELL
